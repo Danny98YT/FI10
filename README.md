@@ -5,3 +5,4 @@ THATHECK Called me underaged
 so ye i was
 but this revival is not secure is 2007
 pls just fix teh errors from index.php with 500!
+ADDED BY THATHECK THAT SEND ME TEH FILES INTO MY PC!!!
