@@ -1,0 +1,1 @@
+<h1>Go to Default.php cuz site broke early lol</h1>
